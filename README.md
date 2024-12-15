@@ -47,9 +47,8 @@ Let’s secure your digital assets together!
 ## 📫 Let's Connect!
 Feel free to explore my repositories and projects. I’m always excited to collaborate, contribute, and grow alongside like-minded individuals and teams.
 
-- **Email:** your.email@example.com  
-- **LinkedIn:** [Your LinkedIn Profile](https://linkedin.com/in/yourprofile)  
-- **Portfolio:** [Your Portfolio Link](https://yourportfolio.com)
+- **Email:** ligalanoah@gmail.com / info@lgico.tech
+- **LinkedIn:** [Your LinkedIn Profile](https://linkedin.com/in/ligalanoah  
 
 ---
 
